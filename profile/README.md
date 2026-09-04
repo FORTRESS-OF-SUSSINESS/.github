@@ -3,3 +3,6 @@
 
 > [!CAUTION]
 > we are fortress of sussiness, you must beware or the __shaddle will spiktato u ⚠️__
+
+> [!INFO]
+> The spiketato is a spiky potato not found in a fortress, but is found in the overworld where the spikes grow highest. When the cakes are almost done, the skeletons will emerge and sing with the maraccas and then die, but a zombie will save the shaddle
